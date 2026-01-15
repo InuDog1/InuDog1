@@ -1,3 +1,5 @@
+<img src="https://i.pximg.net/img-original/img/2026/01/11/23/00/11/139817250_p0.jpg" align="right" width="300">
+
 ## 🐶 About Inu
 Hi, I'm an System engineer and FinalFantasy XIV Player. 🤝
 
